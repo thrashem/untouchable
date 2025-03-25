@@ -1,1 +1,1 @@
-# untouchable for PC at atore
+# untouchable for PC at store
